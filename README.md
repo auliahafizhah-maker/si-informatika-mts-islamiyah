@@ -1,1 +1,0 @@
-# si-informatika-mts-islamiyah
